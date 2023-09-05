@@ -32,3 +32,8 @@ You can check out [the Next.js GitHub repository](https://github.com/vercel/next
 The easiest way to deploy your Next.js app is to use the [Vercel Platform](https://vercel.com/new?utm_medium=default-template&filter=next.js&utm_source=create-next-app&utm_campaign=create-next-app-readme) from the creators of Next.js.
 
 Check out our [Next.js deployment documentation](https://nextjs.org/docs/deployment) for more details.
+
+[Konsultan ISO: 7 Peran Penting & Manfaatnya Bagi Perusahaan]([url](https://solusibisnisindonesia.com/blog/konsultan-iso/)https://solusibisnisindonesia.com/blog/konsultan-iso/)
+[11 Manfaat & Rekomendasi Merk Madu Hitam Pahit Terbaik]([url](https://mybest.id/madu-hitam/)https://mybest.id/madu-hitam/)
+[Digital Marketing Agency Jakarta]([url](https://www.maknative.com/)https://www.maknative.com/)
+[The Daily Martech - Informasi, Berita, Opini & Tutorial]([url](https://thedailymartech.com/)https://thedailymartech.com/)
